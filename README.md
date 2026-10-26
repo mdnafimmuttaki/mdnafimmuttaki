@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Md. Nafim Muttaki
-## Student at Govt. Laboratory High School Rajshahi | Competitive Chess Player | Programming & Technology Enthusiast
+## Student at Rajshahi College, Rajshahi | Likes Chess | Programming & Technology Enthusiast
 ## 🌐 Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/https://discord.com/users/942790249099190343) [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/naphium) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/nafim.exe) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/mdnafimmuttaki) [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/mdnafimmuttaki) [![Reddit](https://img.shields.io/badge/Reddit-%23FF4500.svg?logo=Reddit&logoColor=white)](https://reddit.com/user/mdnafimmuttaki) [![Twitch](https://img.shields.io/badge/Twitch-%239146FF.svg?logo=Twitch&logoColor=white)](https://twitch.tv/Nafim10) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:muttakinafim35@gmail.com) 
 
